@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Valentina Ferreira 😁
+## Bem-vindo(a) ao perfil da Valentina Ferreira 😁 :dizzy:
 
  <div>
    <a href="https://github.com/valenjferreira">
