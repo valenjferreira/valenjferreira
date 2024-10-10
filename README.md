@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Valentina Ferreira :sparkling_heart:	:sparkles:
+## Bem-vindo(a) ao perfil da Valentina Ferreira :sparkling_heart::sparkles:
 
  <div>
    <a href="https://github.com/valenjferreira">
